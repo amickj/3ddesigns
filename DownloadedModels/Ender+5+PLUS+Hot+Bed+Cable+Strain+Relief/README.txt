@@ -1,0 +1,1 @@
+Ender 5 PLUS Hot Bed Cable Strain Relief by BGDog on Thingiverse: https://www.thingiverse.com/thing:4067316

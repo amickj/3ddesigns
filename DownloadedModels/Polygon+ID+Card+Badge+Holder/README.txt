@@ -1,0 +1,1 @@
+{Polygon ID Card Badge Holder %!s(bool=true)} by {DisruptivNation %!s(bool=true)} on Thingiverse: https://www.thingiverse.com/thing:2810500
